@@ -1,12 +1,18 @@
 Yo, these are my fav songs. they are sorted by genre.
 
 **Rap:**
-FE!n - Travis Scott
+FE!n - Travis Scott 
+
 Like that - Kendrick Lamar, Metro Boomin, Future
+
 Jimmy cooks - Drake
+
 Money trees - Kendrick Lamar
+
 swimming pools (drank) -  Kendrick Lamar
+
 Carnival - YS, Kanye West, TY Dolla $ign, Rich the kid
+
 playlist: https://open.spotify.com/playlist/0atw1ozUGbByFvRrkhcQC9?si=3ec30fcc3132496e
 
 **Metal:**
